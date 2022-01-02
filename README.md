@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @sash420
+- 👋 Hi, I’m @sash2369
 - 👀 I’m interested in DeFi, NFT, innovation & more cool stuff.
-- 📫 You can reach me on twitter : https://twitter.com/sashsash
+- 📫 You can reach me on twitter : https://twitter.com/sashs2369
                          discord : SashBro#0760
 
 <!---
