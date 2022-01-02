@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sash2369
-- 👀 I’m interested in DeFi, NFT, innovation & more cool stuff.
+- 👀 I’m pationnate about in Crypto in general, keen learner.
 - 📫 You can reach me on twitter : https://twitter.com/sashs2369
                          discord : SashBro#0760
 
